@@ -1,2 +1,2 @@
-# 2CQR-SCAN
+# 2CQR SCAN
  
